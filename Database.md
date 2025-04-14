@@ -1,0 +1,2 @@
+[https://unique-deer-db7.notion.site/DATABASE-COURSE-e286d7dd6bf749b4b2243d6421b80e2e?pvs=4](https://unique-deer-db7.notion.site/DATABASE-COURSE-e286d7dd6bf749b4b2243d6421b80e2e?pvs=4)
+here is the summary of database course
